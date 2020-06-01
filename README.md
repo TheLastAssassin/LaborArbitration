@@ -14,7 +14,7 @@
 
 
 在说细节之前，我先贴上深圳劳动仲裁的重要内容。
-[http://hrss.sz.gov.cn/zmhd/xfjc/zc/index.html](http://hrss.sz.gov.cn/zmhd/xfjc/zc/index.html)
+[http://hrss.sz.gov.cn/zmhd/xfjc/zc/index.html](深圳劳动仲裁相关信息地址)
 
 
 
