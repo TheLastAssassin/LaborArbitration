@@ -15,17 +15,20 @@
 
 在说细节之前，我先贴上深圳劳动仲裁的重要内容链接。  这些信息 也能在网上搜索到。
 
-[劳动仲裁想关信息地址](http://hrss.sz.gov.cn/zmhd/xfjc/zc/index.html)
+[劳动仲裁相关信息地址](http://hrss.sz.gov.cn/zmhd/xfjc/zc/index.html)
 
 [劳动者申请劳动人事争议仲裁需提交的证据材料地址](http://hrss.sz.gov.cn/zmhd/xfjc/zc/content/post_6908713.html)
 
-
-
-[表格下载地址](http://hrss.sz.gov.cn/wsbs/xzzx/ldzc/index.htm) 这个在网上搜索不到，等下会说这个地址在哪里有。
-
+[表格下载地址](http://hrss.sz.gov.cn/wsbs/xzzx/ldzc/index.htm) （这个在网上搜索不到，等下会说这个地址在哪里有。每个表格都有填写样本）
 
 [被申请人注册登记资料 查询 下载地址](http://hrss.sz.gov.cn/wsbs/xzzx/ldzc/index.htm) 
 
+
+
+
+###
+
+2019年低，公司发布2020一季度公司目标，其中提到"人员优化"，所有同事都知道，这就是要裁员。不久公司发全体邮件通知，公司修订执行新的员工手册，在执行之前，按部门项目的方式 ，进行员工手册培训。我们项目组的培训被安排在19:00-20:00，培训过程中我开启了手机录音。
 
 
 
